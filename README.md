@@ -1,2 +1,2 @@
 # learn
-nothing , just learn..
+nothing , just learn...
